@@ -1,4 +1,4 @@
-👋 Hi, I’m 𝑻𝒉𝒐𝒎𝒂𝒔 𝑬𝒉𝒂𝒃, a Computer Engineering bachelor’s student with a keen interest in cyber security and web app development. 📱
+👋 Hi, I’m 𝑻𝒉𝒐𝒎𝒂𝒔 𝑬𝒉𝒂𝒃, a Computer Engineering bachelor’s graduate with a keen interest in cyber security and web app development. 📱
 
 👨‍💻 I’m passionate about 𝐜𝐫𝐢𝐭𝐢𝐜𝐚𝐥 𝐭𝐡𝐢𝐧𝐤𝐢𝐧𝐠, 𝐩𝐫𝐨𝐛𝐥𝐞𝐦-𝐬𝐨𝐥𝐯𝐢𝐧𝐠, 𝐚𝐧𝐝 𝐜𝐫𝐞𝐚𝐭𝐢𝐧𝐠 𝐢𝐦𝐩𝐚𝐜𝐭𝐟𝐮𝐥 𝐜𝐡𝐚𝐧𝐠𝐞 𝐰𝐢𝐭𝐡 𝐭𝐞𝐜𝐡𝐧𝐨𝐥𝐨𝐠𝐲. 💡
 
